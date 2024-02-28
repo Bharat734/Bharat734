@@ -2,7 +2,6 @@
 
 ## Contact Information
 - **Email:** bharatkumarnaik734@gmail.com
-- **Phone:** +91 7349090583
 - **Location:** Belgaum, Karnataka
 - **LinkedIn:** [Bharatkumar Naik](https://www.linkedin.com/in/BharatKN)
 
